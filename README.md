@@ -1,0 +1,2 @@
+# Rastgele-Sifre-Uretici
+Rastgele
